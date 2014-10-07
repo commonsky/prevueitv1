@@ -3,4 +3,4 @@ Prevueit Home Page
 
 # About
 
-Prevueit will change everything
+Prevueit has the potential to significantly my life as well as those lives around me.
